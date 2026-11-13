@@ -10,6 +10,6 @@ I help beauty and wellness small businesses show up on Instagram without burning
 
 ## Portfolio
 - Sample work: Bloom & Balance Studio: https://marissanori.my.canva.site/va-portfolio
-- Instagram: @va.marissa
+- Instagram: [@va.marissa](https://www.instagram.com/va.marissa/)
 
 Want me to handle your posts? Let's talk.
